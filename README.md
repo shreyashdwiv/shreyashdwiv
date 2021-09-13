@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shreyashdwiv
-- 👀 I’m interested in clearing my back subjebjs and is looking for a nice place to work
+- 👀 I’m interested in clearing my back subjects and is looking for a nice place to work
 - 🌱 I’m currently learning java script
 - 💞️ I’m looking to collaborate on my projects
 - 📫 How to reach me  here's my email shreyashdwiv@gmail.com
