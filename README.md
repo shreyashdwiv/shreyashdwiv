@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @shreyashdwiv
-- 👀 I’m interested in clearing my back subjects and is looking for a nice place to work.
+- 👀 I’m interested in looking for a nice place to work.
 - 🌱 I’m currently learning anything i can get my hands on
 - 💞️ I’m looking to collaborate on my projects
 - 📫 here's my email shreyashdwiv@gmail.com
